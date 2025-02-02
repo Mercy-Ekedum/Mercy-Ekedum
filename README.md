@@ -15,5 +15,5 @@
 - 📫 How to reach me:[Linkedin](www.linkedin.com/in/mercy-ekedum-2b841734a)
                      :[Email](ekedum55@gmail.com)
   
-- ⚡ Fun fact: I enjoy going on walks, going to the cinemas and visting the museum.
+- ⚡ Fun fact: I enjoy going on walks, going to the cinemas and visiting the museum.
   
